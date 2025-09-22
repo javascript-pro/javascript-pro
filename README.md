@@ -1,4 +1,7 @@
+Deep expertise in React and TypeScript, currently specialising in Next.js.
+
 是的，兄弟🤙 太完美了👌 看看这里👉 那是老学校🤟
+I identify as a threat. My pronouns are try/me
 
 🦹‍♀️ 超级反派女人 👼 天使
 
